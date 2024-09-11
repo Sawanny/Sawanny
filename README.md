@@ -1,0 +1,6 @@
+- 👋 Meu nome é Raquel Sawanny
+- 👀 Gosto de maquiagens e músicas pop's
+- 🌱Sou estudante da Escola Adelmo Francisco da Silva, 1° ano do Ensino Médio;
+- 💞️ Tenha habilidades com maquiagem, basquete, karate, dança e libras.
+- 📫 Atualmente estou estudando para me tornar modelo e atriz.
+-
